@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Varshitha
+- 👀 I’m interested in sustainablity and supply chain
+- 🌱 I’m currently learning how to connect the data to the sustainablity and make this world a better place 
+- 📫 How to reach me vsri@hellofresh.com
